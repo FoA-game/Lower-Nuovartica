@@ -7,3 +7,7 @@
 - [LN C - Shattered Butterfly Dreams](https://github.com/FoA-game/LowerNuovartica/blob/main/EP1/stories.md#ln-c---shattered-butterfly-dreams)
 - [LN D - Demolition Notice](https://github.com/FoA-game/LowerNuovartica/blob/main/EP1/stories.md#ln-d---demolition-notice)
 - [LN E - Black Redemption](https://github.com/FoA-game/LowerNuovartica/blob/main/EP1/stories.md#ln-e---black-redemption)
+
+## Items
+
+- [Items](https://github.com/FoA-game/LowerNuovartica/blob/main/EP1/items.md)
