@@ -20,15 +20,13 @@ Thanks to the electronic waste discarded by Upper Nuovartica, craftsmen in Lower
 
 "Hey, guess what I did? My family and the Caldwells went camping at Cedar Hill. Emily prepared a bunch of meat pies, but as usual, the brisket was dry and way too salty. I almost choked to death, I swear. I complained a bit, and can you believe she threatened to use my butt as a filling next time? However, Sophie and little Tomy got along well; they picked a bunch of wild berries so sour that I promised to make them jam when we got home. The funniest part was Johnson bragging about his barbecuing skills, and then he set his beard on fire! He yelled and ran around until his boyfriend quickly doused his face with water..."
 
-"That'll be 17 dollars, please."
+"That'll be 17 dollars, please." a cold voice interrupted his story.
 
-"All of this is fake... isn't it? There were no meat pies, no barbecue, no camping. I cannot find my family. And, Johnson... he just died right in front of me..."
+“These were real… weren’t they?” His voice was hoarse at first, trailing off into a long, heavy silence.
 
-"In Morpheus, you can see them again. Spend happy time with them."
+Finally, he couldn’t hold back. “It’s all fake! Every bit of it! I can’t find my wife, my kids… They’re gone! You can’t keep feeding me these lies!”
 
-"It's all fake! All of it! The reality is I can't find my wife and son. They might have woken up a hundred years ago!"
-
-"Morpheus is real enough. For you, what difference does it make?"
+"You can see them again. Spend happy time with them." a voice replied flatly. "Morpheus is real enough. For you, what difference does it make?"
 
 
 ## LN D - Demolition Notice
