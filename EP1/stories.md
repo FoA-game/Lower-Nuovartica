@@ -9,11 +9,11 @@ Under the neon lights, cheap electronic drugs and virtual realities become their
 
 ## LN B - Electronical bliss
 
-In the shadows of the dark market, a specialty "cocktail" known as "Vol de Nuit" has recently risen to fame. Its initial note is the slow release of serotonin, evoking a sense of light ascent. A tumultuous blend of adrenaline and cortisol swiftly follows this. As this intense flight nears its end, a specific blend of dopamine and endorphins gradually saturates the mind and body, bringing deep tranquility and satisfaction and allowing a smooth landing from the sky.
+In the shadows of the dark market, a specialty "cocktail" known as "Vol de Nuit" has recently risen to fame. Its opening notes feature the slow release of serotonin, evoking a light and uplifting sensation. This is followed by a tumultuous symphony of adrenaline and cortisol, pushing the body to the peak of sensory experience. As this intense flight nears its end, carefully calibrated doses of dopamine and endorphins flood the system, bringing the user into a profound state of tranquility, akin to safely landing after a storm.
 
-Thanks to the electronic waste discarded by Upper Nuovartica, craftsmen in Lower Nuovartica ingeniously created Neural Resonators such as Vol de Nuit. These electronic devices connect directly to the human nervous system, precisely adjusting hormone secretion through electrical signals, masterfully manipulating fluctuations in sensation and emotion, offering an unprecedented sensory experience.
+At the heart of these experiences lies the Neural Resonator—a small device ingeniously reconstructed by the craftsmen of Lower Nuovartica using discarded electronic waste from the upper city. These devices directly connect to the human nervous system, precisely regulating hormone secretion through electrical signals, orchestrating a rhythm of sensations and emotions. Vol de Nuit is merely one of the most celebrated products in this category. Despite the crude technology, it is more than enough to enthrall its users.
 
-"Addiction? Brain dysfunction? Loss of emotional control? Who the hell cares? In this damn place, it's the only pleasure we have."
+However, the rising misuse of Neural Resonators has brought alarming consequences. Local clinics report a surge in cases of neurological collapse, endocrine dysfunction, and even sudden death caused by improper use in the past three months. Some doctors warn that Neural Resonators can induce severe physiological dependency and inflict irreversible damage on long-term neural functions.
 
 
 ## LN C - Shattered Butterfly Dreams
