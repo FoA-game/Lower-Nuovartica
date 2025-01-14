@@ -53,7 +53,7 @@ We extend our sincerest greetings and share an important message filled with hop
 Let us join hands to build a new future for Auroria!
 
 Sincerely,<br>
-The White Tower Council
+White Tower Council
 
 
 ## LN E - Black Redemption
