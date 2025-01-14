@@ -29,25 +29,31 @@ Finally, he couldn’t hold back. “It’s all fake! Every bit of it! I can’t
 "You can see them again. Spend happy time with them." a voice replied flatly. "Morpheus is real enough. For you, what difference does it make?"
 
 
-## LN D - Demolition Notice
+## LN D - Recruitment Notice
 
 Dear Downtown Residents,
 
-We extend our deepest greetings to you as well as our regrets for the message we must convey. In alignment with our city’s future development plans and sustainability goals, we are initiating a crucial infrastructure project - the Arcadix Dam - to secure the long-term welfare of human society.
+We extend our sincerest greetings and share an important message filled with hope for the future. We are now recruiting new team members for the Atlas Project and invite you to join us as part of the driving force behind the revival of Auroria. This grand endeavor aims to establish lifelines of water, electricity, and networks across the entire continent, paving the way for a prosperous and stable society.
 
-However, we must acknowledge that implementing this project will result in the submergence of the entire lower area. We are acutely aware of the significant and direct impact this decision will have on your lives. Therefore, we pledge to take all necessary measures to ensure your smooth relocation and proper resettlement.
+**Available Positions and Work Locations**
+- Position Types: There are openings in various fields, including engineering, logistics support, resource allocation, and management.
+- Work Locations: Nuovartica or Fortress (based on job assignments).
 
-New Housing Arrangements: You will be relocated to new residential areas equipped with basic amenities to ensure the quality of your living standards.
+**Salary and Benefits**
+- Hourly Pay: Based on job responsibilities and experience, hourly rates range from 20 to 40 Aurium
+- Housing: Free housing with essential living facilities will be provided to all hired employees.
+- Career Development: Opportunities for professional training and career advancement to help you grow.
 
-New Employment Opportunities: We will create new job opportunities to help you rebuild your life. We firmly believe that meaningful work can enhance personal value.
+**Addiction Intervention and Support**
+- For residents who have developed dependencies on electronic drugs or virtual reality devices, we offer professional mental health services and detox treatments. Tailored programs will be developed based on individual needs to help you overcome these dependencies effectively.
 
-Addiction Intervention and Support: We will provide professional mental health support and treatment services to help those who have developed a dependency on electronic drugs and virtual reality gradually overcome these dependencies.
+**How to Apply**
+- If you are interested in joining, please <u>click here</u> to register your information and submit your application.
 
-We look forward to building a brighter and better future with you in our new community.
+Let us join hands to build a new future for Auroria!
 
-Sincerely,
-
-Civilization Restoration Committee in White Tower
+Sincerely,<br>
+The White Tower Council
 
 
 ## LN E - Black Redemption
