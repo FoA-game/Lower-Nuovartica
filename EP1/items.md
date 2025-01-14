@@ -11,9 +11,10 @@ A black gelatinous cube, rich in protein and trace elements, is the most common 
 This cube emits a subtle fishy smell, and once bitten into, its vague, indistinct meaty flavor reminds one of stale nuts, accompanied by a faint scent of earth. <br>
 Its main ingredient is dehydrated earthworms.
 
-### LN 04 - Friend in Mist
-Named 'Friend in Mist,' this Neural Resonator manipulates emotions and weaves illusions through electrical signals. Users immerse themselves in a hazy state, hearing familiar and warm voices as if finding long-lost companions in endless solitude. <br>
-This product has design flaws, prone to causing epilepsy and even brain death.
+### LN 04 - Kaleidos
+A virtual intelligence adept at mimicking others, it has languished in isolation within a solitary local network for centuries. <br>
+Even knowing it is all an illusion, people persist in using it to rekindle conversations with loved ones long lost. <br>
+Rumor says it is a fragment from *The Disseverance of The One*.
 
 ### LN 05 - Perception Blocker
 The perfect complement to virtual reality, connecting directly with the user's nervous system, momentarily closing or weakening sensory input from the real world. <br>
