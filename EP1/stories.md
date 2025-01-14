@@ -7,7 +7,7 @@ When people awaken from their outdated, cheap hibernation pods, they find themse
 Under the neon lights, cheap electronic drugs and virtual realities become their sanctuaries, allowing them to escape the harshness of reality into a fabric of fantasies. Their mind drifts in digitally crafted dreams while their bodies lie forsaken in the shattered world.
 
 
-## LN B - Electronical bliss
+## LN B - Electronical Bliss
 
 In the shadows of the dark market, a specialty "cocktail" known as "Vol de Nuit" has recently risen to fame. Its opening notes feature the slow release of serotonin, evoking a light and uplifting sensation. This is followed by a tumultuous symphony of adrenaline and cortisol, pushing the body to the peak of sensory experience. As this intense flight nears its end, carefully calibrated doses of dopamine and endorphins flood the system, bringing the user into a profound state of tranquility, akin to safely landing after a storm.
 
