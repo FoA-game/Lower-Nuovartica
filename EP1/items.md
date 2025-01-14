@@ -14,7 +14,7 @@ Its main ingredient is dehydrated earthworms.
 ### LN 04 - Kaleidos
 A virtual intelligence adept at mimicking others, it has languished in isolation within a solitary local network for centuries. <br>
 Even knowing it is all an illusion, people persist in using it to rekindle conversations with loved ones long lost. <br>
-Rumor says it is a fragment from *The Disseverance of The One*.
+Rumor says it is a fragment after *The Disseverance of The One*.
 
 ### LN 05 - Perception Blocker
 The perfect complement to virtual reality, connecting directly with the user's nervous system, momentarily closing or weakening sensory input from the real world. <br>
