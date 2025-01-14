@@ -54,6 +54,8 @@ Civilization Restoration Committee in White Tower
 
 Rain incessantly blankets the city in a mist, mourning the silent withering of life. In this neon wasteland, death is an unexpected shadow that quietly descends upon everyone. A few perish from accidents or complications caused by neural disarray, but many more from malnutrition. It's not for lack of resources — the abundant waste from Upper Nuovartica could stave off hunger — but because people are lost in the ephemeral worlds of neural resonators or the Morpheus system, neglecting the physical needs of the real world.
 
-Recently, mysterious interferences with Neural Resonances, unexplained intrusions, and alterations in the Morpheus system have occurred. A group calling themselves "The Ulixes" has claimed responsibility. They have taken it upon themselves to rescue souls lost in electronic illusions, vowing to awaken those addicted to virtual realities and electronic drugs and bring them back to a harsh yet real existence.
+"Ulixes saved my life," Eliot Gray murmured, his gaze fixed on the nutrient capsule in his trembling hand. "They hacked into the neural resonators, forcibly pulling me out of those fabricated dreams. If it weren’t for them, I’d probably already be another cold corpse on the streets."
 
-"The Ulixes saved my life. Without them, I might have been just another cold corpse on the streets," says Eliot Gray, his eyes reflecting a mix of complex emotions. "I'm not sure how to feel about it. Yes, they kept me alive, but I'm left with nothing but endless pain. I exist in hell, unable even to see the starlight with my own eyes."
+"But you hate them, don’t you?" the visitor across from him asked.
+
+Eliot fell silent for a moment, rain dripping from his hair. "Yes, I hate them. They made me live, but the reality is, I have nothing left but pain! I’m alive, trapped in a hell without an exit, counting the days to see how much longer I can endure."
