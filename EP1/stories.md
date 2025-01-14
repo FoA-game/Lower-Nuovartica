@@ -54,6 +54,8 @@ Civilization Restoration Committee in White Tower
 
 Rain incessantly blankets the city in a mist, mourning the silent withering of life. In this neon wasteland, death is an unexpected shadow that quietly descends upon everyone. A few perish from accidents or complications caused by neural disarray, but many more from malnutrition. It's not for lack of resources — the abundant waste from Upper Nuovartica could stave off hunger — but because people are lost in the ephemeral worlds of neural resonators or the Morpheus system, neglecting the physical needs of the real world.
 
+Amid this void and despair, a hacker group known as Ulixes emerged from the shadows. They see themselves as saviors of lost souls, hacking into and altering Neural Resonators and Morpheus systems to awaken those trapped in their illusions: "Your pain is real, and your will is free."
+
 "Ulixes saved my life," Eliot Gray murmured, his gaze fixed on the nutrient capsule in his trembling hand. "They hacked into the neural resonators, forcibly pulling me out of those fabricated dreams. If it weren’t for them, I’d probably already be another cold corpse on the streets."
 
 "But you hate them, don’t you?" the visitor across from him asked.
