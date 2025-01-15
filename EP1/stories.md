@@ -66,4 +66,4 @@ Amid this void and despair, a hacker group known as Ulixes emerged from the shad
 
 "But you hate them, don’t you?" the visitor across from him asked.
 
-Eliot fell silent for a moment, rain dripping from his hair. "Yes, I hate them. They made me live, but the reality is, I have nothing left but pain! I’m alive, trapped in a hell without an exit, counting the days to see how much longer I can endure."
+Eliot fell silent for a moment, rain dripping from his hair. "Yes, I hate them. They made me live, but the reality is, I have nothing left but pain! I’m alive, trapped in a hell without an exit."
