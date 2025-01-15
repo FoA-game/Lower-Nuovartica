@@ -2,9 +2,9 @@
 
 Known as the Neon Ruins, the streets at night shimmer with unending glows from cheap neon lights, weaving a tapestry of vivid shadows amidst the fog. Scattered around are the ruins of skyscrapers that once reached for the skies, now sprawling like the remains of colossal beings, echoing the lost splendor of the city.
 
-When people awaken from their outdated, cheap hibernation pods, they find themselves bereft of everything—family, friendships, a past life—all gone, leaving only perpetual agony in their wake. This pain appears to be a cruel testament to prolonged exposure to neurotoxins. Since the Great Disruption, the ruin has become like a bottomless swamp, endlessly swallowing up those who are lost, destitute, and without anything left.
+A year ago, when Kiki awoke from her dilapidated hibernation pod, pain tore through her body like searing flames, leaving her mind numb. It was the cruel testament of nerve toxins released from degraded cryofluids. Like everyone else here, she quickly realized she had nothing left——her family, her friends, her life before it all—all drowned in the aftermath of the Great Disruption, reduced to blurred shadows lingering in the depths of her memory. This wasteland has become like a bottomless swamp, endlessly swallowing up those who are lost, destitute, and without anything left.
 
-Under the neon lights, cheap electronic drugs and virtual realities become their sanctuaries, allowing them to escape the harshness of reality into a fabric of fantasies. Their mind drifts in digitally crafted dreams while their bodies lie forsaken in the shattered world.
+Under the neon lights, cheap electronic drugs and virtual realities become their sanctuaries. Kiki stumbled through the streets, the faint glow of neon reflecting off her pale face. In the distance, a faint cry reached her ears—a child kneeling beside a lifeless body. Her fingers brushed against the connector at the nape of her neck, and she closed her eyes, surrendering her consciousness to the digitally crafted dreams while her body lay forsaken in the shattered world.
 
 
 ## LN B - Electronical Bliss
