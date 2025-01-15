@@ -24,7 +24,7 @@ Pain and noise fade into oblivion, even as you endure a thousand tribulations.
 ### LN 06 - Portable Reunion
 It scours fragments of memories, weaving the digital threads into intelligent phantasms of loved ones, promising authentic conversations and interactions. <br>
 A meticulously crafted dream brings the yesterday back to life. <br>
-With a tag of 600 dollars, it stands as the most coveted luxury.
+With a tag of 600 auriums, it stands as the most coveted luxury.
 
 ### LN 07 - Damaged Hibernation Pod
 A budget Lazareon hibernation chamber, its cryogenic fluid long leaked, leaving behind human remains. <br>
