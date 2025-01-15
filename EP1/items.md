@@ -3,7 +3,8 @@ Apparently having suffered a severe impact, the holographic family portrait from
 Where might those smiling faces in the image be now?
 
 ### LN 02 - Pain Reliever
-A device was refashioned from discarded electronic components, designed to counteract the electrical signals caused by pain. When damaged hibernation pods erode the neural systems of the people, costly nerve replacement surgery remains a luxury. Thus, this rudimentary device becomes the choice for the majority. <br>
+A device was refashioned from discarded electronic components, designed to counteract the electrical signals caused by pain. <br>
+When damaged hibernation pods erode the neural systems of the people, costly nerve replacement surgery remains a luxury. Thus, this rudimentary device becomes the choice for the majority. <br>
 A mere trickle of electric current can alter sensations, but people do not stop there.
 
 ### LN 03 - Protein Block
