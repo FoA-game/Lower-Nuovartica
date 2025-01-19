@@ -58,7 +58,7 @@ White Tower Council
 
 ## LN E - Black Redemption
 
-Rain incessantly blankets the city in a mist. In this neon wasteland, death is an unexpected shadow that quietly descends upon everyone A few succumb to accidents or complications from neural disorders, but far more perish under the slow torment of malnutrition. This is not due to a lack of resources—for the food distributed by Upper Nuovartica is sufficient to stave off hunger—but because people, ensnared in illusions, have abandoned the physical needs of their reality.
+Rain incessantly blankets the city in a mist. Here, dreams are too many and too deep, spilling over into reality; while death is an uninvited shadow, quietly descending upon everyone. A few succumb to accidents or complications from neural disorders, but far more perish under malnutrition. This is not due to a lack of resources—Upper Novartica provides enough food to sustain life—but because people, ensnared in illusions, have abandoned the physical needs of their reality.
 
 Amid this void and despair, a hacker group known as Ulixes emerged from the shadows. They see themselves as saviors of lost souls, hacking into and altering Neural Resonators and Morpheus systems to awaken those trapped in their illusions: "Your pain is real, and your will is free."
 
