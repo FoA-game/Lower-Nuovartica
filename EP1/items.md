@@ -40,8 +40,8 @@ These bodies are unclaimed and will ultimately be turned into wisps of smoke by 
 
 ### LN 09 - Black Chip
 A photon register, specifically designed for storing those fantastical experiences woven by the Morpheus device. <br>
-Its surface is engraved with the words: "Spider Jack, the most infamous underground producer in Nuovartica, takes you on a sensory journey beyond reality..." <br>
-The interface of the chip is covered in mysterious black spots, suggesting it may have encountered some unknown interference during its operation.
+It holds Spider Jack's work, Crimson Chalice, notorious for its sordid and grotesque sensory onslaught. <br>
+The chip interface bears several scorch marks, as if it had endured some unknown interference during operation.
 
 ### LN 10 - Bionic Eye
 A creation from the makeshift workshops, seeking light for eyes corroded by neurotoxins. <br>
