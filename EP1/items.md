@@ -1,5 +1,6 @@
 ### LN 01 - Holographic Photo
-Apparently having suffered a severe impact, the holographic family portrait from a bygone era has become twisted and blurred. Within this fragmented holographic image, only the ghostly outlines of a family of five gathered around a birthday cake remain. Laughter and songs imbued with an unreachable warmth, seep through the image. <br>
+Apparently having suffered a severe impact, the family portrait from a bygone era has become twisted and blurred. <br>
+Within this fragmented holographic image, only the ghostly outlines of a family of five gathered around a birthday cake remain. Laughter and songs imbued with an unreachable warmth, seep through the image. <br>
 Where might those smiling faces in the image be now?
 
 ### LN 02 - Pain Reliever
@@ -23,9 +24,9 @@ In the virtual voyage of Morpheus, the constraints of reality are dissolved. <br
 Pain and noise fade into oblivion, even as you endure a thousand tribulations.
 
 ### LN 06 - Portable Reunion
-It scours fragments of memories, weaving the digital threads into intelligent phantasms of loved ones, promising authentic conversations and interactions. <br>
 A meticulously crafted dream brings the yesterday back to life. <br>
-With a tag of 600 auriums, it stands as the most coveted luxury.
+With a tag of 600 auriums, it stands as the most coveted luxury. <br>
+All is fleeting; only loss and longing endure.
 
 ### LN 07 - Damaged Hibernation Pod
 A budget Lazareon hibernation chamber, its cryogenic fluid long leaked, leaving behind human remains. <br>
@@ -33,7 +34,7 @@ Faintly visible, a pale skeletal hand grips a faded ribbon bow. <br>
 Is someone still dreaming of his reunion?
 
 ### LN 08 - Mourner
-Robots, ghost-like in their presence, roam through the ruins with a mission to find and harmlessly process human corpses. <br>
+Robots, ghost-like in their presence, roam through the ruins with a mission to find and process human corpses. <br>
 In corners of the city, some people pass away quietly with a serene, content smile. <br>
 These bodies are unclaimed and will ultimately be turned into wisps of smoke by these funeral robots.
 
