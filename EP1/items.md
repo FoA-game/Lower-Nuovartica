@@ -35,8 +35,8 @@ Is someone still dreaming of his reunion?
 
 ### LN 08 - Mourner
 Robots, ghost-like in their presence, roam through the ruins with a mission to find and process human corpses. <br>
-In corners of the city, some people pass away quietly with a serene, content smile. <br>
-These bodies are unclaimed and will ultimately be turned into wisps of smoke by these funeral robots.
+The unclaimed bodies with faces still bearing smiles, are finally reduced to a wisp of smoke by the funeral machines. <br>
+Their names and dreams, along with the moon they dreamt of last night, dissolve together into the endless darkness.
 
 ### LN 09 - Black Chip
 A photon register, specifically designed for storing those fantastical experiences woven by the Morpheus device. <br>
