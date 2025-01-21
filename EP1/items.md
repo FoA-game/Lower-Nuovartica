@@ -24,7 +24,7 @@ In the virtual voyage of Morpheus, the constraints of reality are dissolved. <br
 Pain and noise fade into oblivion, even as you endure a thousand tribulations.
 
 ### LN 06 - Portable Reunion
-A meticulously crafted dream brings the yesterday back to life. <br>
+A meticulously crafted dream brings the yesterday once more. <br>
 With a tag of 600 auriums, it stands as the most coveted luxury. <br>
 All is fleeting; only loss and longing endure.
 
